@@ -8,7 +8,7 @@ Meu nome é Bruno otávio
 
   ### você entrar em contato comigo 📫
 
-  00001106610660sp@al.educacao.sp
+  00001106610660sp@al.educacao.sp.gov.br
 
   ![](https://media1.tenor.com/m/M7OIRu1vgzcAAAAC/lucifer-hazbin-hotel.gif)
 
